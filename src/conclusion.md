@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 9: Conclusion
-=====================
-
 In this book, we have explored the concept of a growth mindset and its importance in cultivating a culture of continuous improvement. We have discussed the science behind a growth mindset, identified the benefits of a growth mindset in the workplace, and provided strategies for developing a growth mindset in yourself and your team. We have also explored strategies for overcoming common barriers to growth and change, leading through uncertainty and disruption, and measuring and celebrating success.
 
 Recap of Key Takeaways
