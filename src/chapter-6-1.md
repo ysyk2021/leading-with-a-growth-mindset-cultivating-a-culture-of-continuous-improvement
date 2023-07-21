@@ -31,4 +31,4 @@ Unclear goals or objectives can also be a barrier to growth and change. If emplo
 Conclusion
 ----------
 
-Identifying common barriers to growth and change is an important first step in overcoming them. By recognizing and addressing fear of failure, a lack of resources or support, resistance to change, limited vision or perspective, and unclear goals or objectives, individuals and organizations can embrace a growth mindset and pursue continuous improvement. In the next chapter, we will explore strategies for developing strategies to overcome resistance and obstacles to growth and change.
+Identifying common barriers to growth and change is an important first step in overcoming them. By recognizing and addressing fear of failure, a lack of resources or support, resistance to change, limited vision or perspective, and unclear goals or objectives, individuals and organizations can embrace a growth mindset and pursue continuous improvement.

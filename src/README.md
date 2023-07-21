@@ -8,5 +8,4 @@ Throughout the book, we will explore the importance of a growth mindset, strateg
 
 By adopting a growth mindset and embracing a culture of continuous improvement, leaders can unlock their own potential and the potential of their team members. Whether you are looking to improve workplace productivity, enhance employee engagement and retention, or drive innovation and creativity, this book will provide you with the tools and strategies you need to succeed.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
