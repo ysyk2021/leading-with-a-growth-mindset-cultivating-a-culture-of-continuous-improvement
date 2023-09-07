@@ -1,5 +1,3 @@
-Chapter 6: Overcoming Barriers to Growth and Change
-===================================================
 
 In this chapter, we will explore strategies for overcoming barriers to growth and change in your organization.
 

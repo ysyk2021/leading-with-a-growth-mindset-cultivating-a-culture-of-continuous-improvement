@@ -1,4 +1,3 @@
-# Embracing Challenges and Failure
 
 ## The Power of a Growth Mindset
 

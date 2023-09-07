@@ -1,4 +1,3 @@
-# Encouraging Experimentation and Creativity
 
 In this chapter, we will explore the importance of encouraging experimentation and fostering a culture of creativity within an organization. Embracing a growth mindset allows leaders to create an environment where individuals feel empowered to take risks, learn from failures, and continuously innovate.
 

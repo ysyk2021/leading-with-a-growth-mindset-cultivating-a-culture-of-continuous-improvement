@@ -1,6 +1,3 @@
-# Nurturing a Positive and Open Attitude
-
-## Introduction
 
 In today's rapidly changing world, leaders must possess a growth mindset that fosters continuous improvement in their teams and organizations. One essential aspect of this mindset is nurturing a positive and open attitude within the workplace. When leaders encourage positivity and openness, they create an environment conducive to learning, collaboration, and innovation. In this chapter, we will explore strategies for cultivating and maintaining a positive and open attitude among team members.
 

@@ -1,6 +1,3 @@
-# Setting Clear Expectations and Goals
-
-## Introduction
 
 In the pursuit of cultivating a culture of continuous improvement, setting clear expectations and goals is a foundational step for effective leadership. A growth mindset thrives in an environment where objectives are well-defined, transparent, and aligned with the organization's vision. In this chapter, we will explore the significance of setting clear expectations and goals, and how it fosters a culture that embraces change, learning, and continuous progress.
 

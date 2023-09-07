@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Celebrating Success
-============================================
 
 In order to cultivate a culture of continuous improvement, it's important to measure and celebrate success. In this chapter, we will discuss how to define metrics and key performance indicators (KPIs), track progress and evaluate results, and celebrate achievements and recognize employee contributions.
 

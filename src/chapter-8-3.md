@@ -1,4 +1,3 @@
-# Celebrating Achievements and Recognizing Employee Contributions
 
 In this chapter, we will explore the importance of celebrating achievements and recognizing employee contributions within an organization. A growth mindset promotes a culture of continuous improvement, and acknowledging the efforts and accomplishments of employees plays a significant role in fostering this mindset.
 

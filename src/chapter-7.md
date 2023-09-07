@@ -1,5 +1,3 @@
-Chapter 7: Leading Through Uncertainty and Disruption
-=====================================================
 
 Leading through uncertainty and disruption requires a unique set of skills and strategies. In this chapter, we will explore how leaders can navigate change and uncertainty with a growth mindset, manage risk and innovation, and maintain agility and flexibility.
 

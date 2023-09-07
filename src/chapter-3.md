@@ -1,5 +1,3 @@
-Chapter 3: Developing a Growth Mindset as a Leader
-==================================================
 
 Developing a growth mindset as a leader is essential for cultivating a culture of continuous improvement. In this chapter, we will discuss how leaders can develop a growth mindset by cultivating self-awareness and reflection, embracing challenges and failure, and nurturing a positive and open attitude.
 

@@ -1,4 +1,3 @@
-# Providing Feedback and Opportunities for Growth
 
 In this chapter, we will explore the importance of providing feedback and creating opportunities for growth within an organization that embraces a growth mindset. We will discuss strategies and techniques that leaders can use to foster a culture of continuous improvement among their teams.
 

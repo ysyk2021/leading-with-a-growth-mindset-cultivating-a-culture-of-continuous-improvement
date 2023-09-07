@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In today's rapidly changing business landscape, cultivating a culture of continuous improvement is essential for success. Leaders who embrace a growth mindset and prioritize learning and development are more likely to succeed in the long run. In this chapter, we will explore what a growth mindset is, why it is important for leaders, and how this book can help you cultivate a culture of continuous improvement in your organization.
 

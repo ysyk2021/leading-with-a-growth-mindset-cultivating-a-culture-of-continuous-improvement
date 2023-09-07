@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Science and Benefits of a Growth Mindset
-=====================================================================
 
 A growth mindset is the belief that abilities and talents can be developed through hard work, dedication, and learning from mistakes. In this chapter, we will explore the research behind a growth mindset and the benefits it can have in the workplace.
 

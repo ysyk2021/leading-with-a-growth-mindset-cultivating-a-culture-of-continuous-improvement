@@ -1,4 +1,4 @@
-# Introduction
+
 
 Success in today's fast-paced business world requires leaders who are able to adapt, innovate, and continuously improve. To achieve this, leaders must cultivate a culture of continuous improvement that values learning, growth, and innovation. In "Leading with a Growth Mindset: Cultivating a Culture of Continuous Improvement", we explore strategies for building a learning organization that is agile, innovative, and focused on continuous improvement.
 
@@ -9,3 +9,7 @@ Throughout the book, we will explore the importance of a growth mindset, strateg
 By adopting a growth mindset and embracing a culture of continuous improvement, leaders can unlock their own potential and the potential of their team members. Whether you are looking to improve workplace productivity, enhance employee engagement and retention, or drive innovation and creativity, this book will provide you with the tools and strategies you need to succeed.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

@@ -1,5 +1,3 @@
-What is a Growth Mindset?
-==================================================
 
 A growth mindset is the belief that abilities and talents can be developed through hard work, dedication, and learning from mistakes. This concept was first introduced by psychologist Carol Dweck in her book "Mindset: The New Psychology of Success".
 
