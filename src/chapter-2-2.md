@@ -1,5 +1,4 @@
-Chapter: Identifying the Benefits of a Growth Mindset in the Workplace
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that a growth mindset brings to the workplace when cultivating a culture of continuous improvement. Understanding and recognizing these benefits is crucial for leaders who want to foster a growth mindset among individuals and teams. By embracing a growth mindset, organizations can unlock their full potential and achieve sustainable success. We will cover the following topics:
 

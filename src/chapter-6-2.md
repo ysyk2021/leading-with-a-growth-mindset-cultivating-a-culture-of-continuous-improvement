@@ -1,5 +1,4 @@
-Chapter: Developing Strategies to Overcome Resistance and Obstacles
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of developing strategies to overcome resistance and obstacles when cultivating a culture of continuous improvement through a growth mindset. Building a growth mindset culture requires individuals and organizations to embrace change, adapt to new challenges, and persist in the face of setbacks. However, resistance and obstacles are inevitable. By understanding common sources of resistance and employing effective strategies, leaders can navigate challenges and foster a culture of continuous improvement. We will cover the following topics:
 

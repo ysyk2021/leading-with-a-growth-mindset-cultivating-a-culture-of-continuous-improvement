@@ -1,5 +1,4 @@
-Chapter 7: Navigating Change and Uncertainty with a Growth Mindset
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------

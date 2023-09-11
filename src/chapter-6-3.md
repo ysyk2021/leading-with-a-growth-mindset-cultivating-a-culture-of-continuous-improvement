@@ -1,5 +1,4 @@
-Chapter: Building Resilience and Adaptability
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building resilience and adaptability when leading with a growth mindset to cultivate a culture of continuous improvement. In today's fast-paced and ever-changing business landscape, organizations need to be resilient and adaptable to thrive. By fostering resilience and adaptability within individuals and teams, leaders can navigate challenges, overcome setbacks, and embrace change. We will cover the following topics:
 

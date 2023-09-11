@@ -1,5 +1,4 @@
-Chapter: Promoting Knowledge Sharing and Collaboration
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of promoting knowledge sharing and collaboration in cultivating a culture of continuous improvement through leading with a growth mindset. Encouraging individuals and teams to share their knowledge and collaborate is essential for driving innovation, fostering learning, and achieving organizational success. We will cover the following topics:
 

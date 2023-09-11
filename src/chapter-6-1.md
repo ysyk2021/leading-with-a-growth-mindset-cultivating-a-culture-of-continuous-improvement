@@ -1,5 +1,4 @@
-Chapter: Identifying Common Barriers to Growth and Change
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the common barriers that organizations face when cultivating a culture of continuous improvement through leading with a growth mindset. Identifying these barriers is crucial for overcoming challenges and driving successful change initiatives. By understanding the obstacles that hinder growth and change, leaders can develop strategies to address them effectively. We will cover the following topics:
 

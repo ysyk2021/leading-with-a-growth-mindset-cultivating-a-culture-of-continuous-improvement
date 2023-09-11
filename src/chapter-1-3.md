@@ -1,5 +1,4 @@
-Chapter 8: How This Book Can Help You Cultivate a Culture of Continuous Improvement
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
